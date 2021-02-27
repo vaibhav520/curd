@@ -1,0 +1,1 @@
+The main ingredient in curd is casein, the reserve protein of milk which gives the product its white main colour. The primary biological value of the curd is in its high protein content (usually 10-12%) which varies a little by curd variety.
